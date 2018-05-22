@@ -1,4 +1,4 @@
-# learn-stock
+# learn stock
 
 
 20170620 [年報酬率 10%，只需 800 萬就能安心退休？沒注意理財 4 要點...小心老年「二度就業」](https://www.cmoney.tw/notes/note-detail.aspx?nid=85665)  
